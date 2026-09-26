@@ -8,24 +8,12 @@
 
 
 
- 　　　
-
 <div align="center">
-   
-remaking.　go away
-
-
-
-
-
-mk kins dni　DIE OFF
-
-
  　　　
 
 
 
-sign [ata](https://heavenslapdog.atabook.org/),　[filler sp](https://citadelhater.straw.page/)
+[ata](https://heavenslapdog.atabook.org/),　[sp](https://heavenslapdog.straw.page/),　[prnscc](https://pronouns.cc/@heavenslapdog)
 
 
 
