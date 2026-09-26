@@ -13,8 +13,6 @@
 　
   　
 
-mk kins dni or i blow my brains out
-
 
 
 
