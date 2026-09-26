@@ -9,9 +9,17 @@
 
 
 <div align="center">
- 　　　
+
+　
+  　
+
+mk kins dni or i blow my brains out
 
 
+
+
+
+　
 
 [ata](https://heavenslapdog.atabook.org/),　[sp](https://heavenslapdog.straw.page/),　[prnscc](https://pronouns.cc/@heavenslapdog)
 
