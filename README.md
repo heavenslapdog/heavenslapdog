@@ -11,8 +11,14 @@
 <div align="center">
 
 　
-  　
+
+[@ponytown awards
+](https://github.com/Ponytowns-rewards)
 　
+　
+
+　
+
 
 [ata](https://heavenslapdog.atabook.org/),　[sp](https://heavenslapdog.straw.page/),　[prnscc](https://pronouns.cc/@heavenslapdog)
 
