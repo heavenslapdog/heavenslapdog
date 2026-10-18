@@ -1,7 +1,6 @@
 <div align="center">
 
-<img width="550" height="300" alt="Image" src="https://github.com/user-attachments/assets/df2afd4a-b808-40c9-9352-c986c8090e00" />
-
+<img width="498" height="281" alt="Image" src="https://github.com/user-attachments/assets/3beb0433-02b5-4fc6-8f5b-2182d8347b81" />
 　
 
 ![](https://komarev.com/ghpvc/?username=wukongdotcom&color=628CBD&style=plastic&label=pawns)
