@@ -1,12 +1,11 @@
 <div align="center">
 
-<img width="498" height="281" alt="Image" src="https://github.com/user-attachments/assets/3beb0433-02b5-4fc6-8f5b-2182d8347b81" />
-　
+<img width="550" height="300" alt="Image" src="https://github.com/user-attachments/assets/1e8ce6f7-1ece-4572-890f-3553c73ecfcd" />　
 
 
 　
 
-![](https://komarev.com/ghpvc/?username=wukongdotcom&color=628CBD&style=plastic&label=pawns)
+![](https://komarev.com/ghpvc/?username=wukongdotcom&color=e12d2d&style=plastic&label=　🍎　)
 
 
 
@@ -16,6 +15,10 @@
 
 [@ponytown awards
 ](https://github.com/Ponytowns-rewards)
+　
+
+
+monkie kid kins/yumes
 　
 　
 
