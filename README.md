@@ -18,7 +18,7 @@
 　
 
 
-monkie kid kins/yumes
+monkie kid kins/yumes dni
 　
 　
 
