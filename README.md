@@ -1,11 +1,10 @@
 <div align="center">
 
-<img width="550" height="300" alt="Image" src="https://github.com/user-attachments/assets/1e8ce6f7-1ece-4572-890f-3553c73ecfcd" />　
-
+<img width="550" height="300" alt="Image" src="https://github.com/user-attachments/assets/12e4c5b2-4d4b-4437-bbe2-b2f4d084f059" />
 
 　
 
-![](https://komarev.com/ghpvc/?username=wukongdotcom&color=e12d2d&style=plastic&label=　🍎　)
+![](https://komarev.com/ghpvc/?username=wukongdotcom&color=573771&style=plastic&label=　pawns　)
 
 
 
