@@ -17,7 +17,6 @@
 　
 　
 
-　
 
 monkie kid kins/yumes dni
 　
