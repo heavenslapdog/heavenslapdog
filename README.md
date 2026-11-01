@@ -12,10 +12,15 @@
 
 　
 
-[@ponytown awards
-](https://github.com/Ponytowns-rewards)
+　
+thank u!:
+
+
+[@ponytown awards](https://github.com/Ponytowns-rewards),  [@piddles.jet](https://github.com/piddlesjet)
+　
 　
 
+　
 
 monkie kid kins/yumes dni
 　
