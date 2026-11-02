@@ -4,7 +4,7 @@
 
 　
 
-![](https://komarev.com/ghpvc/?username=wukongdotcom&color=573771&style=plastic&label=　pawns　)
+![](https://komarev.com/ghpvc/?username=wukongdotcom&color=573771&style=glass&label=　pawns　)
 
 
 
@@ -29,5 +29,5 @@ monkie kid kins/yumes dni
 
 
 
-
+<sub>ill make this look cute later like i promise</sub>
 
