@@ -13,7 +13,7 @@
 　
 
 
-[@ponytown awards](https://github.com/Ponytowns-rewards),  [@piddles.jet](https://github.com/piddlesjet)
+[@ponytown awards](https://github.com/Ponytowns-rewards),  [@piddles.jet](https://github.com/piddlesjet),  [@pt-everypony](https://github.com/pt-everypony)
 　
 　
 
